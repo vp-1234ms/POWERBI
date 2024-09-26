@@ -6,3 +6,7 @@
 
 
 ![HOSPITAL PAGE-1](https://github.com/user-attachments/assets/5ed7d376-9145-4e07-8fa6-e67ad384b672)
+
+
+
+![Netflix](https://github.com/user-attachments/assets/4f8483a8-fe0c-4df0-923b-d0976c90c082)
